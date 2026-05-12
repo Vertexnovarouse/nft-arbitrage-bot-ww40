@@ -1,4 +1,4 @@
-# 
+# instant nft arbitrage bot | auto-buy + wash-trading-detection offers the most advanced nft arbitrage bot, with auto-buy and wash-trading-detection. Ideal for professional NFT
 
 
 
